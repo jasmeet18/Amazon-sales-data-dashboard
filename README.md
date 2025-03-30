@@ -54,3 +54,9 @@ Revenue Growth: Focus on high-revenue categories to maximize profitability.
 Cost Optimization: Reduce costs for low-margin products.
 Improved Inventory Management: Prioritize stocking high-demand products.
 Data-Driven Decision Making: Use sales insights to refine business strategies.
+
+![Screenshot 2025-03-30 123755](https://github.com/user-attachments/assets/36845612-7459-4dac-8a04-07372cdf52a7)
+
+
+![Screenshot 2025-03-30 123827](https://github.com/user-attachments/assets/ca04a9a6-44a0-4f07-8e44-e87ce689c306)
+
